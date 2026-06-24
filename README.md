@@ -76,3 +76,19 @@ Pour s'éloigner des tropes classiques du "glitch numérique" (et éviter tout c
 2. **Fusion Topologique :** La cire efface tous les détails de surface — les cheveux, la texture des vêtements, les rides et les traits du visage fondent pour devenir une géométrie parfaitement lisse et simplifiée. Les personnages ressemblent à des statues de cire fondues ou à des modèles 3D sans texture.
 3. **Le Regard Vide :** Leurs yeux sont remplacés par des orbes d'un noir d'encre et totalement vides. Ils conservent leur silhouette globale mais perdent leur identité, devenant des extensions de la conscience collective de Yriaf.
 4. **Menace Multiverselle Totale :** Yriaf est totalement indifférent aux barrières de styles ou de médias. Il peut envahir un univers cinématographique ultra-réaliste, un manga en noir et blanc ultra-détaillé ou un jeu rétro low-poly. Lorsqu'il s'attaque à un monde réaliste, les cibles fondent en formes lisses, stylisées et horriblement simplifiées, créant un contraste visuel terrifiant.
+
+
+
+
+
+# CREDITS (ONLY ENGLISH FOR NOW)
+
+Wing i mage is under license CC0 1.0 on Wikimedia
+
+here & edit by me: https://commons.wikimedia.org/wiki/File:Drosophila_Melanogaster_Wing.png
+
+& the eye is my eye & edit by me lol & also under license CC0 1.0
+
+you can find the original images here:
+
+https://www.stormwindsky.com/Stormwindsky's%20Collection.html?mode=images&q=eye
